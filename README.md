@@ -1,4 +1,4 @@
-## Oi!  Eu sou T3D1M👋
+## Oi!  Eu sou T3D1M, mais conhecido como Pedro👋
 
 
 - 🔭 Buscando Oportunidades
